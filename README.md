@@ -5,3 +5,4 @@ https://discord.com
 https://chatgpt.com
 https://hianime.to
 https://tiktok.com
+https://pinterest.com
